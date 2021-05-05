@@ -12,17 +12,17 @@ A falta de vacinas no Brasil é resultado da política genocida do Governo Bolso
 
 Entendemos que é papel das comunidades internacionais defender a solidariedade irrestrita ao povo brasileiro e denunciar a gestão da covid-19 no Brasil. Portanto, exigimos e defendemos que essa embaixada interceda das mais variadas maneiras que estejam em seu alcance no sentido de:
 
-Garantir vacinação gratuita e de eficácia comprovada contra o coronavírus para toda a população e aumentar a capacidade da vacinação com prioridades para os idosos, pessoas com comorbidades, povos indígenas e residentes de comunidades e bairros periféricos;
+- Garantir vacinação gratuita e de eficácia comprovada contra o coronavírus para toda a população e aumentar a capacidade da vacinação com prioridades para os idosos, pessoas com comorbidades, povos indígenas e residentes de comunidades e bairros periféricos;
 
-Defender a quebra das patentes para que o Brasil e outros países tenham acesso livre aos imunizantes, insumos e medicamentos de eficácia comprovada contra o coronavírus;
+- Defender a quebra das patentes para que o Brasil e outros países tenham acesso livre aos imunizantes, insumos e medicamentos de eficácia comprovada contra o coronavírus;
 
-Facilitar a troca de informações com as autoridades brasileiras e cortes internacionais de justiça dentro dos critérios da ordem jurídica, para garantir uma apuração justa da responsabilidade das mortes evitáveis e das demais consequências da pandemia sobre a população brasileira; 
+- Facilitar a troca de informações com as autoridades brasileiras e cortes internacionais de justiça dentro dos critérios da ordem jurídica, para garantir uma apuração justa da responsabilidade das mortes evitáveis e das demais consequências da pandemia sobre a população brasileira; 
 
-Garantir que a diplomacia brasileira represente os interesses da população brasileira, em especial a defesa da vida acima do lucro, e o combate à pobreza e à miséria nesse período de pandemia, com auxílio emergencial digno atingindo a todos os desempregados e aqueles e aquelas que necessitarem permanecer em casa;
+- Garantir que a diplomacia brasileira represente os interesses da população brasileira, em especial a defesa da vida acima do lucro, e o combate à pobreza e à miséria nesse período de pandemia, com auxílio emergencial digno atingindo a todos os desempregados e aqueles e aquelas que necessitarem permanecer em casa;
 
-Organizar a colaboração solidária entre o SUS e hospitais privados contra falta de equipamentos, pessoal e camas de unidades de tratamento intensivo, defendendo a universalidade do acesso à saúde básica e preventiva, pública, gratuita e de qualidade;
+- Organizar a colaboração solidária entre o SUS e hospitais privados contra falta de equipamentos, pessoal e camas de unidades de tratamento intensivo, defendendo a universalidade do acesso à saúde básica e preventiva, pública, gratuita e de qualidade;
 
-Defender a liberdade de expressão e apurar as violações de direitos humanos e perseguições em curso contra aqueles que lutam pela defesa de direitos, que trabalham como cientistas e ambientalistas;
+- Defender a liberdade de expressão e apurar as violações de direitos humanos e perseguições em curso contra aqueles que lutam pela defesa de direitos, que trabalham como cientistas e ambientalistas;
 
 Nos juntamos às demais organizações científicas, da sociedade civil, e aos movimentos sociais no Brasil e no mundo para denunciar as ações e omissões do Governo Bolsonaro em um ato na frente da Embaixada do Brasil em Bruxelas.
 
