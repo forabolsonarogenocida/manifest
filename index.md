@@ -31,10 +31,15 @@ Bruxelas, 06 de maio de 2021
 Assinam esse manifesto, as seguintes organizações, ativistas e cidadãos…
 
 Latin America Student Community (LASCOM) in Belgium
+
 Encuentro Belgian Latin America Network 
+
 Comitê Belgo Brasileiro 
+
 Cine Luso Espírito Mundo 
+
 REVIBRA - Rede Européia de Apoio às Vítimas Brasileiras de Violência Doméstica - Europa
+
 FIBRA-Frente Internacional Brasileira Contra o Golpe e Pela Democracia
 
 
